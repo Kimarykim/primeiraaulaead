@@ -1,0 +1,2 @@
+# primeiraaulaead
+to tentando aprender
